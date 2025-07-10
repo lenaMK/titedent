@@ -18,7 +18,7 @@ Complétez notre [formulaire d'inscription](https://framaforms.org/cooperative-d
 
 Pour toute question, écrivez-nous à : [info@titedent.org](mailto:info@titedent.com)
 
-Restez connectés via nos réseaux sociaux pour suivre les étapes d’ouverture!
+Restez connecté·e·s via nos réseaux sociaux pour suivre les étapes d’ouverture!
 Instagram : [@cooptitedent](https://www.instagram.com/cooptitedent)
 
 À très bientôt!

@@ -15,7 +15,7 @@ Tite Dent est une coopérative dentaire fondée sur des valeurs d’équité, d�
 
 **Vous représentez un organisme?**
 
-- Complétez notre [formulaire d'inscription](https://framaforms.org/coop-tite-dent-1750968104) pour être intégré à notre système de rendez-vous prioritaire et nous vous contacterons pour confirmer la liste de votre membres. 
+- Complétez notre [formulaire d'inscription](https://framaforms.org/coop-tite-dent-1750968104) pour être intégré à notre système de rendez-vous prioritaire et nous vous contacterons pour confirmer la liste de vos membres. 
 
 Pour toute question, écrivez-nous à : [info@titedent.org](mailto:info@titedent.com)
 
